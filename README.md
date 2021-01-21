@@ -6,4 +6,4 @@
   
   Looking to collaborate? 👯 Just want a chat? 💬 Don't hesitate to get in touch ...
   
-  [Linkedin](https://www.linkedin.com/in/matthew-taylor-rittech-ambcs-7a074b148/) & [Email](matthewtaylor98.mt@gmail.com)
+   Contact me by [Linkedin](https://www.linkedin.com/in/matthew-taylor-rittech-ambcs-7a074b148/) & [Email](matthewtaylor98.mt@gmail.com)

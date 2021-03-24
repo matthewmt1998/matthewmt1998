@@ -1,4 +1,4 @@
-### Hi there 👋
+# Hi there 👋
   I'm a Software Developer with desire to learn new tech and continue to develop my skill set. \
   😄 Pronouns: He/Him \
   🔭 I’m currently working on mass spectrometry software. \
